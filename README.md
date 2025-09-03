@@ -29,4 +29,4 @@ Men — Rahmadjon, web dasturlash bo‘yicha tajribali dasturchiman va Taraqqiyo
 ---
 
 Yangi loyihalar va hamkorlik uchun doim ochiqman!  
-Bog‘lanish: [your-email@example.com]
+Bog‘lanish: abdullayevrahmadjon821@gmail.com
